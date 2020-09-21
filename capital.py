@@ -1,1 +1,1 @@
-Andhrapradesh - vizag
+Andhrapradesh - vizag,Amaravathi,Kurnool
